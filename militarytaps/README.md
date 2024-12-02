@@ -1,2 +1,0 @@
-military taps site.
-
